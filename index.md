@@ -28,4 +28,4 @@ If this policy changes, updates will be posted on this page.
 
 ## Contact
 
-If you have questions, contact: **your-email@example.com**
+If you have questions, contact: **ohlen.troyer@gmail.com**
